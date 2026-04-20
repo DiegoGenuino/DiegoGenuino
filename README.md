@@ -1,2 +1,1 @@
-#  Think Different
-> "A inovação distingue um líder de um seguidor." – Steve Jobs
+I dont know what to put here...
